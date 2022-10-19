@@ -14,3 +14,14 @@ seeking simplicity in a sovereign state.
 
 A marketplace for work built with an onchain reputation based on 
 character, integrity, and respect.  A group purchasing organization.
+Integrated financial services, tax preparation, healthcare marketplace. 
+Information management, aggregation and an update engine linked to your 
+employer, health insurance company, healthcare providers, 
+schools/universities with data tokenized at the smallest level for 
+absolute control of distribution.
+
+My experience is in healthcare access and revenue cycle operations. I hold 
+an B.A. in Management Information Systems. I have spent countless hours 
+competing for jobs with organizations I have no desire to work for.  I may 
+not want to work for you, but I would love to contribute to your success 
+any way I can.  
